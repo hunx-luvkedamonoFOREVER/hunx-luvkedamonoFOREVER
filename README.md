@@ -11,7 +11,7 @@
                      
                      ✦🕊️- I LIKE POPEE IN POPEE THE PERFORMER & KURUWAYA HANABISHI IN CHINCHIKURIN -🕊️✦ 
                      
-<img width="247" height="287" alt="image" src="https://github.com/user-attachments/assets/97820738-490e-416f-8182-72fb39f7174f" />
+   <img width="247" height="287" alt="image" src="https://github.com/user-attachments/assets/97820738-490e-416f-8182-72fb39f7174f" />
 
        
                                                  
@@ -26,8 +26,8 @@
                          🕊️-   ✦ Respect my ship, I'll respect yours!! ^^ ✦ EXCEPT KEDAMONO X POPEE  ✦   -🕊️  
 
 
-  <img width="646" height="742" alt="image" src="https://github.com/user-attachments/assets/9fce6f9e-f63b-4c9f-9191-72be124cf014" />
-    
+   <img width="574" height="494" alt="image" src="https://github.com/user-attachments/assets/78bd795e-2541-42bb-ab6f-233ab33dfdbc" />
+
  
                           
   ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
