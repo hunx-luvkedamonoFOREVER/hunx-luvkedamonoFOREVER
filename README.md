@@ -12,9 +12,8 @@
                                       🕊️- ✦ MULTIFANDOMS * MULTISHIPS ✦  -🕊️
                                                         🕊️- ✦
                          🕊️-   ✦ Respect my ship, I'll respect yours!! ^^ ✦ EXCEPT KEDAMONO X POPEE  ✦   -🕊️  
-
+                         
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
-
   ✦🕊️-  <img width="491" height="465" alt="image" src="https://github.com/user-attachments/assets/da056fa6-ff20-4d0e-a822-bc94cf0a92d0" />-🕊️✦ OOKAMI KEITA -🕊️✦
 
  
