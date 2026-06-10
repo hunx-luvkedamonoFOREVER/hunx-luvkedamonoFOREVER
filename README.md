@@ -26,7 +26,7 @@
 
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
 
-  ✦🕊️-  <img width="574" height="494" alt="image" src="https://github.com/user-attachments/assets/78bd795e-2541-42bb-ab6f-233ab33dfdbc" /> -🕊️✦OOKAMI KEITA -🕊️✦
+  ✦🕊️-  <img width="491" height="465" alt="image" src="https://github.com/user-attachments/assets/da056fa6-ff20-4d0e-a822-bc94cf0a92d0" />-🕊️✦OOKAMI KEITA -🕊️✦
 
  
                        
