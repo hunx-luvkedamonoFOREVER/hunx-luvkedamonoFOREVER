@@ -11,7 +11,8 @@
                      
                      ✦🕊️- I LIKE POPEE IN POPEE THE PERFORMER & KURUWAYA HANABISHI IN CHINCHIKURIN -🕊️✦ 
                      
-<img width="1284" height="918" alt="image" src="https://github.com/user-attachments/assets/ebcb0639-2bb9-49bd-ab31-26dc513fc8f0" />
+<img width="247" height="287" alt="image" src="https://github.com/user-attachments/assets/97820738-490e-416f-8182-72fb39f7174f" />
+
        
                                                  
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
