@@ -3,16 +3,10 @@
                                       # ✦CALL : HUNX / HUN / HŨN / MEO ✦ # 
                                       
                                        
-                         🕊️- ✦  AFK OUT OF NOWHERE * MOSTLY OFFTAB ✦ C+H WITH ME YEAHH 🕊️-✦                               
-                                  
-                     ✦🕊️- I LOVE KEDAMONO IN POPEE THE PERFORMER & OOKAMI KEITA IN CHINCHIKURIN -🕊️✦
-                     
-                     ✦🕊️- I LIKE POPEE IN POPEE THE PERFORMER & KURUWAYA HANABISHI IN CHINCHIKURIN -🕊️✦ 
+                         🕊️- ✦  AFK OUT OF NOWHERE * MOSTLY OFFTAB ✦ C+H WITH ME YEAHH 🕊️-✦                                
                      
    ✦🕊️- <img width="247" height="287" alt="image" src="https://github.com/user-attachments/assets/97820738-490e-416f-8182-72fb39f7174f" /> -🕊️✦ KEDAMONO -🕊️✦
-
-       
-                                                 
+                                                        
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
     
                                       🕊️-  ✦ HEAVY DNI -> PROSHIP * DARKSHIP -🕊️  ✦                                                                                                          
