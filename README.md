@@ -15,8 +15,7 @@
                                                  
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
     
-                                      🕊️-  ✦ HEAVY DNI -> PROSHIP * DARKSHIP  ✦-🕊️ 
-                       🕊️-  ✦ HATE ONLY TOXIC YUMESHIPERS (I don't hate all yumeshippers) ✦-🕊️                                                                                                          
+                                      🕊️-  ✦ HEAVY DNI -> PROSHIP * DARKSHIP -🕊️  ✦                                                                                                          
                  
                                       🕊️- ✦ MULTIFANDOMS * MULTISHIPS ✦  -🕊️
                                                  🕊️- ✦
