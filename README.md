@@ -2,7 +2,7 @@
                                                           
   <img src=https://media1.tenor.com/m/zLluPm8u76cAAAAd/popee-the-performer-handsome-roblox-face.gif>  
   ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
-  <img src=<https://github.com/user-attachments/assets/02eae7c6-4eaf-4e3d-9606-2c905fa768f0>
+>
 
 
                           🕊️- ✦ # ✦ CALL : HUNX / HUN / HŨN / MEO ✦ # -🕊️ ✦
