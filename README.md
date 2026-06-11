@@ -5,7 +5,7 @@
                           🕊️- ✦ # ✦ CALL : HUNX / HUN / HŨN / MEO ✦ # -🕊️ ✦ - I'm always rambling on about Kedamono cuz i love him , okay - 🕊️ ✦ # ✦
                                                                                                                                                   
 <p align="center">
- <img width="343" height="368" alt="image" src="https://github.com/user-attachments/assets/e9d9e40f-d1ec-4406-b363-084389507964" /> 
+ <img width="285" height="251" alt="kedamono-dancing-kedamono" src="https://github.com/user-attachments/assets/5ee80d58-3afa-4933-af26-a47da4eac3a2" />
 
  <img width="470" height="330" alt="image" src="https://github.com/user-attachments/assets/7c5dc6de-bce1-4778-8a13-05e62b13d7c2" /> 
 </p>
@@ -15,7 +15,7 @@
                       \ 🕊️-  𓆩♡𓆪 ✦ Respect my ALL ship, I'll respect yours!! ^^ ✦ EXCEPT KEDAMONO X POPEE  𓆩♡𓆪✦   -🕊️ /
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
 <p align="center">  
- <img width="285" height="251" alt="kedamono-dancing-kedamono" src="https://github.com/user-attachments/assets/5ee80d58-3afa-4933-af26-a47da4eac3a2" /> 
+ 
    <img width="336" height="347" alt="image" src="https://github.com/user-attachments/assets/233eb595-cb43-4e7c-a43b-b23ec19ed9a8" />
    </p>                           🕊️✦-  me when I have free time belike: -🕊️✦
                                       𓆩♡𓆪     LOVE ALL MY FRIENDD            𓆩♡𓆪
