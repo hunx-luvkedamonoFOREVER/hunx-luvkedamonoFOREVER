@@ -1,8 +1,10 @@
-                                                     私はあなたを愛しています<3!!  
+<img width="500" height="281" alt="tenor" src="https://github.com/user-attachments/assets/c3970717-c87b-4d87-9ae7-5c8db80c612c" />                                                     私はあなたを愛しています<3!!  
                                                           
   <img src=https://media1.tenor.com/m/zLluPm8u76cAAAAd/popee-the-performer-handsome-roblox-face.gif>  
   ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
-  <img src=https://canva.link/o5gr2ddana8j414>
+  <img src=<https://github.com/user-attachments/assets/02eae7c6-4eaf-4e3d-9606-2c905fa768f0>
+
+
                           🕊️- ✦ # ✦ CALL : HUNX / HUN / HŨN / MEO ✦ # -🕊️ ✦
                                                                                                                                                   
                        🕊️-  ✦  DNI -> PROSHIP * DARKSHIP -🕊️  ✦  🕊️- ✦ MULTIFANDOMS * MULTISHIPS ✦  -🕊️                                                                                                                                                                                                                                                        
