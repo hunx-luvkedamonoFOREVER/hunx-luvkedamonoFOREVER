@@ -1,5 +1,6 @@
-      🕊️  ポピー・ザ・パフォーマー 🕊️
-<img width="285" height="251" alt="kedamono-dancing-kedamono" src="https://github.com/user-attachments/assets/5ee80d58-3afa-4933-af26-a47da4eac3a2" /> 
+✦🕊️- <img width="1635" height="817" alt="image" src="https://github.com/user-attachments/assets/41fb471f-f1e5-4273-a607-2f6983c6f2ce" /> 🕊️  ポピー・ザ・パフォーマー 🕊️
+
+
          
       🕊️   私はあなたを愛しています >_*  🕊️                                      
                                                           
@@ -15,7 +16,7 @@
                        🕊️-   ✦ Respect my ship, I'll respect yours!! ^^ ✦ EXCEPT KEDAMONO X POPEE  ✦   -🕊️
   
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
-  ✦🕊️- <img width="1635" height="817" alt="image" src="https://github.com/user-attachments/assets/41fb471f-f1e5-4273-a607-2f6983c6f2ce" />
+  <img width="285" height="251" alt="kedamono-dancing-kedamono" src="https://github.com/user-attachments/assets/5ee80d58-3afa-4933-af26-a47da4eac3a2" /> 
                                     🕊️✦- my girlfriend and me belike: -🕊️✦
                                                             
  
