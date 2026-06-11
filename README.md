@@ -1,4 +1,4 @@
-<img width="500" height="281" alt="tenor" src="https://github.com/user-attachments/assets/c3970717-c87b-4d87-9ae7-5c8db80c612c" />                                                     私はあなたを愛しています<3!!  
+<img width="500" height="281" alt="tenor" src="https://github.com/user-attachments/assets/c3970717-c87b-4d87-9ae7-5c8db80c612c" />                                                    
                                                           
   
   ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
