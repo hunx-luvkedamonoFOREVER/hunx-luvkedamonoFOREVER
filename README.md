@@ -6,7 +6,7 @@
 
                           🕊️- ✦ # ✦ CALL : HUNX / HUN / HŨN / MEO ✦ # -🕊️ ✦
                                                                                                                                                   
-[KEDAMONO MY BELOVED♡.pdf](https://github.com/user-attachments/files/28822213/KEDAMONO.MY.BELOVED.pdf)
+<img SCR=https://github.com/user-attachments/files/28822213/KEDAMONO.MY.BELOVED.pdf>
 
 
                        🕊️-  ✦  DNI -> PROSHIP * DARKSHIP -🕊️  ✦  🕊️- ✦ MULTIFANDOMS * MULTISHIPS ✦  -🕊️                                                                                                                                                                                                                                                          
