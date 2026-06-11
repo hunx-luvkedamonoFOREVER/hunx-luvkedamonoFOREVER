@@ -6,10 +6,10 @@
                                
                           🕊️- ✦ # ✦ CALL : HUNX / HUN / HŨN / MEO ✦ # -🕊️ ✦
                                                                                                                                                   
-<img width="1152" height="648" alt="KEDAMONO MY BELOVED (3)" src="https://github.com/user-attachments/assets/4f15b5d2-dd04-4963-9a80-892456a8979c" />
+<img width="499" height="378" alt="image" src="https://github.com/user-attachments/assets/5292cf42-8b8d-4997-8ea1-0a087127c3d8" />
 
 
-                       🕊️-  ✦  DNI -> PROSHIP * DARKSHIP -🕊️  ✦  🕊️- ✦ MULTIFANDOMS * MULTISHIPS ✦  -🕊️                                                                                                                                                                                                                                                          
+                       🕊️-  ✦  DNI -> PROSHIP * DARKSHIP -🕊️  ✦  🕊️- ✦ MULTIFANDOM * MULTISHIP ✦  -🕊️                                                                                                                                                                                                                                                          
                        🕊️-   ✦ Respect my ship, I'll respect yours!! ^^ ✦ EXCEPT KEDAMONO X POPEE  ✦   -🕊️
   
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
