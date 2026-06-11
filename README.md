@@ -1,5 +1,5 @@
- <img width="1635" height="817" alt="image" src="https://github.com/user-attachments/assets/41fb471f-f1e5-4273-a607-2f6983c6f2ce" /> 🕊️  ポピー・ザ・パフォーマー 🕊️
-                         🕊️✦-  my girlfriend and me  -🕊️✦
+ <img width="1635" height="817" alt="image" src="https://github.com/user-attachments/assets/41fb471f-f1e5-4273-a607-2f6983c6f2ce" /> 🕊️  𓆩♡𓆪ポピー・ザ・パフォーマー 𓆩♡𓆪🕊️
+                         🕊️✦-𓆩♡𓆪  my girlfriend and me  𓆩♡𓆪-🕊️✦
                                                                                                    
   ----------------------------------------------------------🕊️-----------------------------------------------------------------------------                            
                           🕊️- ✦ # ✦ CALL : HUNX / HUN / HŨN / MEO ✦ # -🕊️ ✦ - I'm always rambling on about Kedamono cuz i love him , okay - 🕊️ ✦ # ✦
@@ -9,14 +9,11 @@
 
   <img width="470" height="330" alt="image" src="https://github.com/user-attachments/assets/7c5dc6de-bce1-4778-8a13-05e62b13d7c2" />
 </p> 
-
-
-
-                     \  🕊️-  ✦  DNI -> PROSHIPPER  -🕊️  ✦  🕊️- ✦ MULTIFANDOM * MULTISHIPPER ✦  -🕊️  /                                                                                                                                      \                                                                                 /                                
-                      \ 🕊️-   ✦ Respect my ALL ship, I'll respect yours!! ^^ ✦ EXCEPT KEDAMONO X POPEE  ✦   -🕊️ /
+                     \  🕊️-  ✦𓆩♡𓆪  DNI -> PROSHIPPER  -🕊️  ✦  🕊️- ✦ MULTIFANDOM * MULTISHIPPER  𓆩♡𓆪✦  -🕊️  /                                                                                                                                      \                                                                                 /                                
+                      \ 🕊️-  𓆩♡𓆪 ✦ Respect my ALL ship, I'll respect yours!! ^^ ✦ EXCEPT KEDAMONO X POPEE  𓆩♡𓆪✦   -🕊️ /
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
   <img width="285" height="251" alt="kedamono-dancing-kedamono" src="https://github.com/user-attachments/assets/5ee80d58-3afa-4933-af26-a47da4eac3a2" /> 
                                   🕊️✦-  me when I have free time belike: -🕊️✦
-                                                            
+                                      𓆩♡𓆪     LOVE ALL MY FRIENDD            𓆩♡𓆪
  
                        
