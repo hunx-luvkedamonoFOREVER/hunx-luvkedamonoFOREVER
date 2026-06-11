@@ -1,3 +1,4 @@
+<img width="285" height="251" alt="kedamono-dancing-kedamono" src="https://github.com/user-attachments/assets/5ee80d58-3afa-4933-af26-a47da4eac3a2" />
         私はあなたを愛しています<3!!                                             
                                                           
   
@@ -6,9 +7,6 @@
 
                           🕊️- ✦ # ✦ CALL : HUNX / HUN / HŨN / MEO ✦ # -🕊️ ✦
                                                                                                                                                   
-
-<img scr=https://github.com/user-attachments/assets/72482d02-0e53-466e-9612-53192ca6277f>
-
 
 
 
