@@ -1,8 +1,8 @@
 ✦🕊️- <img width="1635" height="817" alt="image" src="https://github.com/user-attachments/assets/41fb471f-f1e5-4273-a607-2f6983c6f2ce" /> 🕊️  ポピー・ザ・パフォーマー 🕊️
-                         🕊️✦-  my girlfriend and me belike: -🕊️✦
+                         🕊️✦-  my girlfriend and me  -🕊️✦
                                                                                                    
   ----------------------------------------------------------🕊️-----------------------------------------------------------------------------                            
-                          🕊️- ✦ # ✦ CALL : HUNX / HUN / HŨN / MEO ✦ # -🕊️ ✦
+                          🕊️- ✦ # ✦ CALL : HUNX / HUN / HŨN / MEO ✦ # -🕊️ ✦ - I'm always rambling on about Kedamono cuz i love him , okay - 🕊️ ✦ # ✦
                                                                                                                                                   
 <img width="470" height="330" alt="image" src="https://github.com/user-attachments/assets/7c5dc6de-bce1-4778-8a13-05e62b13d7c2" />
 
