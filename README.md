@@ -6,7 +6,8 @@
                                
                           🕊️- ✦ # ✦ CALL : HUNX / HUN / HŨN / MEO ✦ # -🕊️ ✦
                                                                                                                                                   
-<img width="499" height="378" alt="image" src="https://github.com/user-attachments/assets/5292cf42-8b8d-4997-8ea1-0a087127c3d8" />
+<img width="470" height="330" alt="image" src="https://github.com/user-attachments/assets/7c5dc6de-bce1-4778-8a13-05e62b13d7c2" />
+
 
 
                        🕊️-  ✦  DNI -> PROSHIP * DARKSHIP -🕊️  ✦  🕊️- ✦ MULTIFANDOM * MULTISHIP ✦  -🕊️                                                                                                                                                                                                                                                          
