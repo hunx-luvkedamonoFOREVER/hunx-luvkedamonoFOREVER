@@ -1,5 +1,7 @@
-<img width="285" height="251" alt="kedamono-dancing-kedamono" src="https://github.com/user-attachments/assets/5ee80d58-3afa-4933-af26-a47da4eac3a2" />
-        私はあなたを愛しています<3!!                                             
+        ポピー・ザ・パフォーマー
+<img width="285" height="251" alt="kedamono-dancing-kedamono" src="https://github.com/user-attachments/assets/5ee80d58-3afa-4933-af26-a47da4eac3a2" /> 
+         
+         私はあなたを愛しています >_*                                         
                                                           
   
   ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
