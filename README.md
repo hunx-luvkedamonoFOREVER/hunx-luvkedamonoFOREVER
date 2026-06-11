@@ -12,8 +12,8 @@
 
 
 
-                       🕊️-  ✦  DNI -> PROSHIP * DARKSHIP -🕊️  ✦  🕊️- ✦ MULTIFANDOM * MULTISHIP ✦  -🕊️                                                                                                                                                                                                                                                          
-                       🕊️-   ✦ Respect my ship, I'll respect yours!! ^^ ✦ EXCEPT KEDAMONO X POPEE  ✦   -🕊️ 
+                     \  🕊️-  ✦  DNI -> PROSHIPPER  -🕊️  ✦  🕊️- ✦ MULTIFANDOM * MULTISHIPPER ✦  -🕊️  /                                                                                                                                      \                                                                                 /                                
+                      \ 🕊️-   ✦ Respect my ALL ship, I'll respect yours!! ^^ ✦ EXCEPT KEDAMONO X POPEE  ✦   -🕊️ /
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
   <img width="285" height="251" alt="kedamono-dancing-kedamono" src="https://github.com/user-attachments/assets/5ee80d58-3afa-4933-af26-a47da4eac3a2" /> 
                                   🕊️✦-  me when I have free time belike: -🕊️✦
