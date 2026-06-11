@@ -4,7 +4,7 @@
                                                     🕊️- ✦             
                          🕊️- ✦  AFK OUT OF NOWHERE  ✦ MOSTLY OFFTAB ✦ C+H WITH ME YEAHH 🕊️-✦                                
   <p align="center">
-  <img width="486" height="422" alt="image" src="https://github.com/user-attachments/assets/667b82b3-71dc-4fc7-b499-67c3e5cca7d7" />
+  <img width="442" height="364" alt="image" src="https://github.com/user-attachments/assets/54e76144-7c1b-4689-900d-319d2f41994d" />
 
     
   <img src="https://github.com/user-attachments/assets/da056fa6-ff20-4d0e-a822-bc94cf0a92d0" width="64%" />
