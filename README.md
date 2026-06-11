@@ -2,7 +2,7 @@
 
                                                             
   <p align="center">
-  <img src=https://media.tenor.com/AzMIFQEoqTIAAAAj/kedamono-popee-the-preformer.gif>  
+  <img src=https://media1.tenor.com/m/zLluPm8u76cAAAAd/popee-the-performer-handsome-roblox-face.gif>  
   <img src="https://github.com/user-attachments/assets/da056fa6-ff20-4d0e-a822-bc94cf0a92d0" width="64%" />
 </p>
 
