@@ -5,8 +5,7 @@
                           🕊️- ✦ # ✦ CALL : HUNX / HUN / HŨN / MEO ✦ # -🕊️ ✦ - I'm always rambling on about Kedamono cuz i love him , okay - 🕊️ ✦ # ✦
                                                                                                                                                   
 <p align="center">
- <img width="515" height="403" alt="image" src="https://github.com/user-attachments/assets/377c613d-6a0f-43ab-bb5d-c3dd2a97861d" />
-
+ <img width="512" height="432" alt="image" src="https://github.com/user-attachments/assets/323cff90-5059-4ada-9ea5-3026b66b9053" />
 
 
 
