@@ -7,8 +7,7 @@
                           🕊️- ✦ # ✦ jst call me  hunx * hun * hũn *meo or smth ✦ # -🕊️ ✦ - I'm always rambling on about Kedamono cuz i love him , okay - 🕊️ ✦ # ✦
                                                                                                                                                   
 <p align="center">
-<img width="725" height="690" alt="image" src="https://github.com/user-attachments/assets/f229fb06-e579-4970-b852-46b45f590939" />
-
+<img width="336" height="347" alt="image" src="https://github.com/user-attachments/assets/233eb595-cb43-4e7c-a43b-b23ec19ed9a8" />
  <img width="470" height="330" alt="image" src="https://github.com/user-attachments/assets/7c5dc6de-bce1-4778-8a13-05e62b13d7c2" /> 
 </p>
 
@@ -20,7 +19,8 @@
                                                𓆩♡𓆪    LOVE ALL MY FRIENDD        𓆩♡𓆪🕊️✦-  BARK BARK MY BABBYYY WHY YOU CRYY -🕊️✦
                                    
 
-<p align="center">  
-  <img width="336" height="347" alt="image" src="https://github.com/user-attachments/assets/233eb595-cb43-4e7c-a43b-b23ec19ed9a8" />
+<p align="center">
+ <img width="725" height="690" alt="image" src="https://github.com/user-attachments/assets/f229fb06-e579-4970-b852-46b45f590939" /> 
+ 
  <img width="403" height="377" alt="image" src="https://github.com/user-attachments/assets/428b9514-6397-42d8-9f0c-79083cfb4496" />
    </p>                           ✦
