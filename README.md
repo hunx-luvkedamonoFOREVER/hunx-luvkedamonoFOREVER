@@ -18,7 +18,6 @@
 <p align="center">  
   <img width="336" height="347" alt="image" src="https://github.com/user-attachments/assets/233eb595-cb43-4e7c-a43b-b23ec19ed9a8" />
  <img width="403" height="377" alt="image" src="https://github.com/user-attachments/assets/428b9514-6397-42d8-9f0c-79083cfb4496" />
-   </p>                           🕊️✦-  BARK BARK MY POOKIEE  -🕊️✦
+   </p>                           ✦
                                       𓆩♡𓆪     LOVE ALL MY FRIENDD        𓆩♡𓆪
-
-                       
+                                   🕊️✦-  BARK BARK MY POOKIEE WHY YOU CRYY -🕊️✦
