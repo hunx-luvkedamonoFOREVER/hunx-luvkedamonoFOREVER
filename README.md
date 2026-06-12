@@ -16,11 +16,9 @@
                       \ 🕊️-  𓆩♡𓆪 ✦ Respect my ALL ship, I'll respect yours!! ^^ ✦   EXCEPT KEDAMONO X POPEE     𓆩♡𓆪✦   -🕊️ /
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
 
-                                               𓆩♡𓆪    LOVE ALL MY FRIENDD        𓆩♡𓆪🕊️✦-  BARK BARK MY BABBYYY WHY YOU CRYY -🕊️✦
+                                              ✦🕊️ 𓆩♡𓆪✦    LOVE ALL MY FRIENDD      ✦ 𓆩♡𓆪🕊️✦   
                                    
-
-<p align="center">
  <img width="725" height="690" alt="image" src="https://github.com/user-attachments/assets/f229fb06-e579-4970-b852-46b45f590939" /> 
- 
- <img width="403" height="377" alt="image" src="https://github.com/user-attachments/assets/428b9514-6397-42d8-9f0c-79083cfb4496" />
-   </p>                           ✦
+ 𓆩♡𓆪🕊️✦-                                                                                                                     𓆩♡𓆪 -🕊️✦
+      
+         
