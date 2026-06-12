@@ -15,8 +15,8 @@
                       \ 🕊️-  𓆩♡𓆪 ✦ Respect my ALL ship, I'll respect yours!! ^^ ✦ EXCEPT KEDAMONO X POPEE  𓆩♡𓆪✦   -🕊️ /
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
 <p align="center">  
- 
-   <img width="336" height="347" alt="image" src="https://github.com/user-attachments/assets/233eb595-cb43-4e7c-a43b-b23ec19ed9a8" />
+ <img width="666" height="375" alt="Thêm_tiêu_đề_phụ-removebg-preview" src="https://github.com/user-attachments/assets/28a935db-9a7a-4246-80a6-46c817f6db06" />
+  <img width="336" height="347" alt="image" src="https://github.com/user-attachments/assets/233eb595-cb43-4e7c-a43b-b23ec19ed9a8" />
    </p>                           🕊️✦-  me when I have free time belike: -🕊️✦
                                       𓆩♡𓆪     LOVE ALL MY FRIENDD            𓆩♡𓆪
  
