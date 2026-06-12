@@ -4,7 +4,7 @@
                          🕊️✦-𓆩♡𓆪  my girlfriend and me  𓆩♡𓆪-🕊️✦
                                                                                                    
   ----------------------------------------------------------🕊️-----------------------------------------------------------------------------                            
-                          🕊️- ✦ # ✦ CALL : HUNX / HUN / HŨN / MEO ✦ # -🕊️ ✦ - I'm always rambling on about Kedamono cuz i love him , okay - 🕊️ ✦ # ✦
+                          🕊️- ✦ # ✦ jst call me  hunx * hun * hũn *meo or smth ✦ # -🕊️ ✦ - I'm always rambling on about Kedamono cuz i love him , okay - 🕊️ ✦ # ✦
                                                                                                                                                   
 <p align="center">
 <img width="285" height="251" alt="kedamono-dancing-kedamono" src="https://github.com/user-attachments/assets/5ee80d58-3afa-4933-af26-a47da4eac3a2" />
@@ -15,9 +15,11 @@
                      /                                                                                             \
                       \ 🕊️-  𓆩♡𓆪 ✦ Respect my ALL ship, I'll respect yours!! ^^ ✦ EXCEPT KEDAMONO X POPEE  𓆩♡𓆪✦   -🕊️ /
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
+✦
+                                      𓆩♡𓆪     LOVE ALL MY FRIENDD        𓆩♡𓆪
+                                   🕊️✦-  BARK BARK MY POOKIEE WHY YOU CRYY -🕊️✦
+
 <p align="center">  
   <img width="336" height="347" alt="image" src="https://github.com/user-attachments/assets/233eb595-cb43-4e7c-a43b-b23ec19ed9a8" />
  <img width="403" height="377" alt="image" src="https://github.com/user-attachments/assets/428b9514-6397-42d8-9f0c-79083cfb4496" />
    </p>                           ✦
-                                      𓆩♡𓆪     LOVE ALL MY FRIENDD        𓆩♡𓆪
-                                   🕊️✦-  BARK BARK MY POOKIEE WHY YOU CRYY -🕊️✦
