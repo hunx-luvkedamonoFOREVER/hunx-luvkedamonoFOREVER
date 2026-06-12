@@ -1,4 +1,5 @@
- <img width="1635" height="817" alt="image" src="https://github.com/user-attachments/assets/41fb471f-f1e5-4273-a607-2f6983c6f2ce" /> 🕊️  𓆩♡𓆪ポピー・ザ・パフォーマー 𓆩♡𓆪🕊️
+ <img width="950" height="501" alt="image" src="https://github.com/user-attachments/assets/fb247ffd-e59a-460c-97db-a5a724a1f487" />
+ 🕊️  𓆩♡𓆪ポピー・ザ・パフォーマー 𓆩♡𓆪🕊️
                          🕊️✦-𓆩♡𓆪  my girlfriend and me  𓆩♡𓆪-🕊️✦
                                                                                                    
   ----------------------------------------------------------🕊️-----------------------------------------------------------------------------                            
