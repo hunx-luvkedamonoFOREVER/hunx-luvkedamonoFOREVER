@@ -11,12 +11,12 @@
  <img width="470" height="330" alt="image" src="https://github.com/user-attachments/assets/7c5dc6de-bce1-4778-8a13-05e62b13d7c2" /> 
 </p>
 
-                     \  🕊️-  DNI -> PROSHIPPER OR KEDAMONO X POPEE:✦𓆩♡ R  -🕊️  ✦  🕊️- ✦ MULTIFANDOM * MULTISHIPPER  𓆩♡𓆪✦  -🕊️  /                                                                                                               \                                                                                       \
-                     /                                                                                             \
-                      \ 🕊️-  𓆩♡𓆪 ✦ Respect my ALL ship, I'll respect yours!! ^^ ✦ EXCEPT KEDAMONO X POPEE  𓆩♡𓆪✦   -🕊️ /
+                     \  🕊️-  DNI  PROSHIPPER *DNI KEDAMONO X POPEE: ✦𓆩♡𓆪   -🕊️  ✦  🕊️- ✦ MULTIFANDOM * MULTISHIPPER  𓆩♡𓆪✦  -🕊️  /                                                                                                           \                                                                                                      \
+                     /                                                                                                           \
+                      \ 🕊️-  𓆩♡𓆪 ✦ Respect my ALL ship, I'll respect yours!! ^^ ✦   EXCEPT KEDAMONO X POPEE     𓆩♡𓆪✦   -🕊️ /
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
-✦
-                                      𓆩♡𓆪     LOVE ALL MY FRIENDD        𓆩♡𓆪
+;
+                                             𓆩♡𓆪    LOVE ALL MY FRIENDD        𓆩♡𓆪
                                    🕊️✦-  BARK BARK MY POOKIEE WHY YOU CRYY -🕊️✦
 
 <p align="center">  
