@@ -11,8 +11,8 @@
  <img width="470" height="330" alt="image" src="https://github.com/user-attachments/assets/7c5dc6de-bce1-4778-8a13-05e62b13d7c2" /> 
 </p>
 
-                     \  🕊️-  DNI  PROSHIPPER *DNI KEDAMONO X POPEE: ✦𓆩♡𓆪   -🕊️  ✦  🕊️- ✦ MULTIFANDOM * MULTISHIPPER  𓆩♡𓆪✦  -🕊️  /                                                                                                           \                                                                                                      \
-                     /                                                                                                           \
+                     \  🕊️-  DNI  PROSHIPPER *DNI KEDAMONO X POPEE: ✦𓆩♡𓆪   -🕊️  ✦  🕊️- ✦ MULTIFANDOM *  𓆩♡𓆪✦  -🕊️  /                                                                                                                       \                                                                                                  \
+                     /                                                                                                      \
                       \ 🕊️-  𓆩♡𓆪 ✦ Respect my ALL ship, I'll respect yours!! ^^ ✦   EXCEPT KEDAMONO X POPEE     𓆩♡𓆪✦   -🕊️ /
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
 
