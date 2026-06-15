@@ -11,4 +11,4 @@
                                                                                                                                                       
  <img width="830" height="442" alt="image" src="https://github.com/user-attachments/assets/101d80bf-1594-4c3c-a012-b98b64df608c" /> 
  
-         🕊️✦-𓆩♡𓆪  my girlfriend and me  𓆩♡𓆪-🕊️✦
+                       🕊️✦-𓆩♡𓆪  my girlfriend and me  𓆩♡𓆪-🕊️✦
