@@ -12,4 +12,4 @@
  <img width="830" height="442" alt="image" src="https://github.com/user-attachments/assets/101d80bf-1594-4c3c-a012-b98b64df608c" /> 
  
                        🕊️✦-𓆩♡𓆪  popee>.< 𓆩♡𓆪-🕊️✦
-<img width=https://i.pinimg.com/originals/2c/bf/ba/2cbfba3eedbe2d29486a8bca02f5a594.gif>
+<img width=[https://i.pinimg.com/originals/2c/bf/ba/2cbfba3eedbe2d29486a8bca02f5a594.gif](https://i.pinimg.com/originals/2c/bf/ba/2cbfba3eedbe2d29486a8bca02f5a594.gif)>
