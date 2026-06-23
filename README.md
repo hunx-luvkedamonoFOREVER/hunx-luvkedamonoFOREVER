@@ -9,6 +9,7 @@
                        🕊️-  𓆩♡𓆪 ✦ Respect my ALL ship, I'll respect yours!! ^^ ✦   EXCEPT KEDAMONO X POPEE     𓆩♡𓆪✦   -🕊️ /
                       
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
+
                                          🕊️✦-𓆩♡𓆪  𓆩♡𓆪  ポピー・ザ・パフォーマー  𓆩♡𓆪 𓆩♡𓆪-🕊️✦                                                                                               
  <img width="830" height="442" alt="image" src="https://github.com/user-attachments/assets/101d80bf-1594-4c3c-a012-b98b64df608c" /> 
  
