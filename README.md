@@ -1,12 +1,12 @@
 
  🕊️  𓆩♡𓆪  Sudden AFK / Always AFK - w2i pliz .  𓆩♡𓆪 🕊️♡ 🕊️私はあなたを愛しています >_*  !!!🕊️                                                                                                                          
   ----------------------------------------------------------🕊️-----------------------------------------------------------------------------                            
-                      🕊️- ✦ # ✦ jst call me  hunx * hun * hũn *meo or smth ✦ obsessed with kedamono & ookami keita ok? .!! ☆*: .｡. o(≧▽≦)o .｡.:*☆ /(❁´◡`❁) 
+                      🕊️- ✦ # ✦ cuddles+hugs~kisses freely !!✦ obsessed with kedamono & ookami keita ok? .!! ☆*: .｡. o(≧▽≦)o
                       
-                             🕊️- ✦ # ✦         - i love Popee, but Kedamono owns my heart.    
+                             🕊️- ✦ # ✦   - i love Popee, but Kedamono owns my heart *  .｡.:*☆ /(❁´◡`❁)     
                         
-                          🕊️-  DNI  PROSHIPPER  ✦𓆩♡𓆪   -🕊️  ✦  🕊️- ✦ MULTIFANDOM *  𓆩♡𓆪✦  -🕊️  /                                                                                                                                                                     ✦🕊️ 𓆩♡𓆪✦         ✦ 𓆩♡𓆪🕊️✦                                                                                                                   
-                          🕊️-  𓆩♡𓆪 ✦ Respect my ALL ship, I'll respect yours!! ^^ ✦     𓆩♡𓆪✦   -🕊️ /
+                          🕊️-  DNI  PROSHIPPER  ✦𓆩♡𓆪   -🕊️  ✦  🕊️- ✦ MULTIFANDOM *     .｡.:*☆ /(❁´◡`❁)                                                                                                                                                           ✦🕊️ 𓆩♡𓆪✦         ✦ 𓆩♡𓆪🕊️✦                                                                                                                   
+                          🕊️-  𓆩♡𓆪 ✦ dniuf roleplays !    ✦ im dumb and goofy lol *       .｡.:*☆ /(❁´◡`❁) 
                       
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
 
