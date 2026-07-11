@@ -1,4 +1,4 @@
-  <img src="https://media.tenor.com/VWaAeb6PypoAAAAi/divider.gif" width="900">
+  <img width="253" height="134" alt="image" src="https://github.com/user-attachments/assets/c43419b0-543f-4648-a4f1-7b18d5e3c9d9" />
  🕊️  𓆩♡𓆪  Sudden AFK / Always AFK - w2i pliz .  𓆩♡𓆪 🕊️♡ 🕊️私はあなたを愛しています >_*  !!!🕊️                                                                                                                          
   ----------------------------------------------------------🕊️-----------------------------------------------------------------------------                            
                       🕊️- ✦ # ✦ cuddles+hugs~kisses freely !!✦ obsessed with kedamono & ookami keita ok? .!! ☆*: .｡. o(≧▽≦)o
