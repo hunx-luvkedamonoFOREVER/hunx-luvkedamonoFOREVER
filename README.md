@@ -2,11 +2,9 @@
  🕊️  𓆩♡𓆪  Sudden AFK / Always AFK - w2i pliz .  𓆩♡𓆪 🕊️♡ 🕊️私はあなたを愛しています >_*  !!!🕊️                                                 
   ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
   
-                      🕊️- ✦ # ✦ cuddles+hugs+kisses+touch freely !!✦ obsessed with kedamono & ookami keita ok? .!! ☆*: .｡. o(≧▽≦)o
-                                            
-                             🕊️- ✦ # ✦   - i love Popee, but Kedamono owns my heart *  
-                        
-                          🕊️-  DNI  PROSHIPPER  ✦𓆩♡𓆪   -🕊️  ✦  🕊️- ✦ MULTIFANDOM *                             
+                      🕊️- ✦ # ✦ Cuddles+Hugs+Kisses freely !!✦ obsessed with kedamono & ookami keita ok? .!! ☆*: .｡. o(≧▽≦)o
+                                                                                          
+                          🕊️-  DNI  PROSHIPPER  ✦𓆩♡𓆪   ୨ৎ  🕊️- ✦ MULTIFANDOM *                             
                                                      
                                               ✦🕊️ 𓆩♡𓆪✦       ✦ 𓆩♡𓆪🕊️✦
                                                
