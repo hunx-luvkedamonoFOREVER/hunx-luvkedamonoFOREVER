@@ -5,10 +5,8 @@
                       🕊️- ✦ # ✦ Cuddles+Hugs+Kisses freely !!✦ obsessed with kedamono & ookami keita ok? .!! ☆*: .｡. o(≧▽≦)o
                                                                                           
                           🕊️-  DNI  PROSHIPPER  ✦𓆩♡𓆪   ୨ৎ  🕊️- ✦ MULTIFANDOM *                             
-                                                     
-                                              ✦🕊️ 𓆩♡𓆪✦       ✦ 𓆩♡𓆪🕊️✦
-                                               
-                             🕊️-  𓆩♡𓆪 ✦     im dumb and goofy lol *   .｡.:*☆ /(❁´◡`❁) 
+                                                                                    
+                          🕊️-  𓆩♡𓆪 ✦     im dumb and goofy lol *   .｡.:*☆ /(❁´◡`❁) 
                       
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
                                                                                                                                     
