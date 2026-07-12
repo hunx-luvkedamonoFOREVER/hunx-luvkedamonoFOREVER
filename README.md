@@ -4,13 +4,13 @@
   
                       🕊️- ✦ # ✦ cuddles+hugs+kisses+touch freely !!✦ obsessed with kedamono & ookami keita ok? .!! ☆*: .｡. o(≧▽≦)o
                                             
-                             🕊️- ✦ # ✦   - i love Popee, but Kedamono owns my heart *  .｡.:*☆ /(❁´◡`❁)     
+                             🕊️- ✦ # ✦   - i love Popee, but Kedamono owns my heart *  
                         
-                          🕊️-  DNI  PROSHIPPER  ✦𓆩♡𓆪   -🕊️  ✦  🕊️- ✦ MULTIFANDOM *     .｡.:*☆ /(❁´◡`❁)                        
+                          🕊️-  DNI  PROSHIPPER  ✦𓆩♡𓆪   -🕊️  ✦  🕊️- ✦ MULTIFANDOM *                             
                                                      
                                               ✦🕊️ 𓆩♡𓆪✦       ✦ 𓆩♡𓆪🕊️✦
                                                
-                          🕊️-  𓆩♡𓆪 ✦ dniuf roleplays !      ✦  im dumb and goofy lol *   .｡.:*☆ /(❁´◡`❁) 
+                             🕊️-  𓆩♡𓆪 ✦     im dumb and goofy lol *   .｡.:*☆ /(❁´◡`❁) 
                       
 ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
 
